@@ -1,6 +1,6 @@
 ## Video Upscaler Pro
 
-For more information, visit: [Video Upscaler Pro](https://websim.ai/@tyner/video-upscaler-pro(1.7%20coming%20soon))
+For more information, visit: [Video Upscaler Pro](https://websim.ai/p/lumy64twhrdnwald3okn(1.7%20coming%20soon))
 
 ### Tutorials
 
